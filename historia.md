@@ -1,1 +1,1 @@
-Spiderman lluita contra Doom per salvar la Terra
+Spiderman lluita contra Doom per salvar la Terra i mor
